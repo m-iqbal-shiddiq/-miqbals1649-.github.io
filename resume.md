@@ -2,8 +2,8 @@
 
 Mahasiswa Ilmu Komputer 53 
 
-_Asrama Sylvalestari IPB_\
-_Lorong 3A Kamar 46_\
+_Asrama Sylvalestari IPB_
+_Lorong 3A Kamar 46_
 _muhammadiqbals.1998@gmail.com_ 
 
 
